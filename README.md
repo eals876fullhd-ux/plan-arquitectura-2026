@@ -1,0 +1,1 @@
+# plan-arquitectura-2026
